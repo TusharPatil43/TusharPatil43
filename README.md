@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @TusharPatil43
 - 🌱 I’m currently pursuing Automobile engineering, at L. D. College Of Engineering
-- 💞
 - 📫 Contact me on Email Tusharmmarathe07@gmail.com
 - 😄 Pronouns: he/him
 
